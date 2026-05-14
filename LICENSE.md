@@ -1,4 +1,4 @@
-# 
+# updated MEV Bot for new token sniper bot | pump-detection & meme-coin-scanning offers the most advanced new token sniper bot, with pump-detection and meme-coin-scanning. Ideal for
 
 
 
